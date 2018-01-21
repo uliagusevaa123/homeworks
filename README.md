@@ -1,6 +1,6 @@
 # hw1
 ## **Студент**: _Гусева Юлия_
-* [почта](mailto: uliagusevaa123@gmail.com)
+* [почта](mailto:uliagusevaa123@gmail.com)
 * [Telegram](https://t.me/Julgu)
 * Я из города [_Самары_](https://www.google.ru/search?q=%D1%81%D0%B0%D0%BC%D0%B0%D1%80%D0%B0&newwindow=1&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiK-6Pe9-jYAhXC3iwKHX5bA5QQ_AUICygC&biw=1094&bih=522#imgrc=9kos28y_wY3WoM:). Учусь в [**Высшей школе экономики**](https://www.hse.ru/) на направлении _Иностранные языки и межкультурная коммуникация_.
 ### Мое еженедельное расписание:
